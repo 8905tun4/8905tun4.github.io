@@ -1,1 +1,1 @@
-# 8905tun4.github.io
+# ortalama-hesaplayici.github.io
